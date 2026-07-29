@@ -1,0 +1,1 @@
+# jinro_mbti_job
